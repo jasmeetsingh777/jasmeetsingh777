@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @jasmeetsingh777
-- 👀 I’m interested in GIRLS
 - 🌱 I’m currently learning Android
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me jasmeetgill7876@gmail.com
